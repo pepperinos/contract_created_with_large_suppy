@@ -1,3 +1,5 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is saltandpepper#3473
+
 # Created token with large supply
 
 ## Description
